@@ -1,6 +1,6 @@
 # Sujeeth Kumar - Portfolio Website
 
-![{B4D0BBA0-8F8E-4571-8F7C-A955600BD82C}](https://github.com/user-attachments/assets/b0cf36fb-657e-4ef2-b534-0e842e292b89)
+![{A360FB01-2DE3-4317-804B-0B799AC4F51E}](https://github.com/user-attachments/assets/d80ff444-21f0-4d0a-b2e0-fdd5be592409)
 
 
 ## 🚀 Overview
